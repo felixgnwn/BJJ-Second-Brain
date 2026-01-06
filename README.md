@@ -4,3 +4,11 @@ Felix's BJJ Notes/Second Brain to Retain Techniques
 Will be using this github repo to retain techniques i'll learn throughout my journey as a BJJ Practicioner.
 
 If anyone find this repo, you can use it to your training as well.
+
+--------------------------------------------------------------------------
+Current Goal ( Short-term Goals )
+1. Get to single leg x from the shin on shin
+2. From there either finish or wrestle up
+
+Long Term Goals
+1. Get to the back easily from guard
