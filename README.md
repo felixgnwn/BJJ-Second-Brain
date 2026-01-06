@@ -12,3 +12,6 @@ Current Goal ( Short-term Goals )
 
 Long Term Goals
 1. Get to the back easily from guard
+
+--------------------------------------------------------------------------
+Current Notes ( To Move to the Specific Folder ):
