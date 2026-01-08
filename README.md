@@ -7,11 +7,10 @@ If anyone find this repo, you can use it to your training as well.
 
 --------------------------------------------------------------------------
 Current Goal ( Short-term Goals )
-1. Get to single leg x from the shin on shin
-2. From there either finish or wrestle up
+1. Do the octopus successfully everytime
 
 Long Term Goals
-1. Get to the back easily from guard
+1. Sweep easily
 
 --------------------------------------------------------------------------
 Current Notes ( To Move to the Specific Folder ):
