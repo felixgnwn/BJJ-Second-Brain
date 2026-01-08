@@ -14,10 +14,3 @@ Long Term Goals
 
 --------------------------------------------------------------------------
 Current Notes ( To Move to the Specific Folder ):
-
-The octopus sometimes work, sometimes don't. Sometimes got stuck in the base position. The hip waist grip still fucks me over, dont know how to counter it.
-
-Also still got darced when doing the octopus.
-
-
-Also still got darced doing the octopus
